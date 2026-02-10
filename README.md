@@ -291,4 +291,4 @@ MIT License - feel free to use and modify for your own projects!
 
 ---
 
-**Made with ❤️ for emotional connection through technology**
+**Made with ❤️ for my puppy, MingKi**
